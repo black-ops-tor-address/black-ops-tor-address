@@ -29,4 +29,6 @@ To fully leverage the security and unique offerings of the Black Ops darknet mar
 
 Visit the official Black Ops darknet marketplace here: **http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion**
 
-Update:  18 September
+
+
+Update:  01.10.2025
